@@ -30,7 +30,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Nathan
-
+![Steve Brule Shocked and Confused](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNGUyMjd1dzZhcmQ3ODJ1dHVtdGNieTU0NXhobGV0MHJwbjNqNjJnZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2XskdWuNUyqElkKe4bm/giphy.gif)
 
 ### JD
 
@@ -40,6 +40,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Nate
 
+![spooky szn](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdG40NjNpZWRhd3dhZGZlcWhoOHU2OWI1bTh0c3ZwaHNsbHEya2FlMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QuxqWk7m9ffxyfoa0a/giphy.gif)
 
 ### Jay
 
@@ -54,19 +55,23 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Christmas is coming](https://media.giphy.com/media/mATqoqwcLzqNKkLcOR/giphy.gif)
 
 ### Meg
-
+![pumpkin head gif from giphy](https://media.giphy.com/media/IRZE8JX2BQikM/giphy.gif)
 
 ### Whitlee
-
+![Anna Kendrick typing](https://media.giphy.com/media/7jMVtv69xwW0E/giphy.gif)
 
 ### Katie
 
 
 ### Shelley
-
+![confused man](https://media.giphy.com/media/4JVTF9zR9BicshFAb7/giphy-downsized.gif)
 
 ### Pat
 
 
+
 ### Johnatha
+
+### Johnathan
+
 
