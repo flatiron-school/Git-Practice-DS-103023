@@ -52,7 +52,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Rigat
-
+![Christmas is coming](https://media.giphy.com/media/mATqoqwcLzqNKkLcOR/giphy.gif)
 
 ### Meg
 ![pumpkin head gif from giphy](https://media.giphy.com/media/IRZE8JX2BQikM/giphy.gif)
@@ -69,5 +69,9 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Pat
 
 
+
+### Johnatha
+
 ### Johnathan
+
 
