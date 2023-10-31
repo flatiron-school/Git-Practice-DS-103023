@@ -54,7 +54,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Meg
-
+![pumpkin head gif from giphy](https://media.giphy.com/media/IRZE8JX2BQikM/giphy.gif)
 
 ### Whitlee
 
@@ -69,3 +69,4 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Johnathan
+
