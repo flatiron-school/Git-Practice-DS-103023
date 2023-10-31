@@ -24,7 +24,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![keyboard cat gif from giphy](https://media.giphy.com/media/Hcw7rjsIsHcmk/giphy-downsized.gif)
 
 ### Daniel Demo
-
+![panda smashes computer](https://media.giphy.com/media/EtB1yylKGGAUg/giphy.gif)
 
 ### Jacob
 
