@@ -66,6 +66,6 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Pat
-
+![dancing cat gif from gyphy](https://media.giphy.com/media/GeimqsH0TLDt4tScGw/giphy.gif)
 
 ### Johnathan
