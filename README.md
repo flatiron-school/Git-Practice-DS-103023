@@ -67,7 +67,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![confused man](https://media.giphy.com/media/4JVTF9zR9BicshFAb7/giphy-downsized.gif)
 
 ### Pat
-
+![cat jam gif from gyphy](https://media.giphy.com/media/GeimqsH0TLDt4tScGw/giphy-downsized.gif)
 
 ### Johnathan
 
