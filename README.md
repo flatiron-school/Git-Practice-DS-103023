@@ -27,7 +27,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![panda smashes computer](https://media.giphy.com/media/EtB1yylKGGAUg/giphy.gif)
 
 ### Jacob
-![Christmas is coming](https://media.giphy.com/media/mATqoqwcLzqNKkLcOR/giphy.gif)
+
 
 ### Nathan
 
@@ -68,4 +68,5 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Pat
 
 
-### Johnathan
+### Johnatha
+
