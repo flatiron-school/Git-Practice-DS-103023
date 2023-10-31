@@ -24,3 +24,48 @@ I will either accept your pull request, or send you feedback on what you need to
 ![keyboard cat gif from giphy](https://media.giphy.com/media/Hcw7rjsIsHcmk/giphy-downsized.gif)
 
 ### Daniel Demo
+
+
+### Jacob
+
+
+### Nathan
+
+
+### JD
+
+
+### Juvenson
+
+
+### Nate
+
+
+### Jay
+
+
+### Victor
+
+
+### Yiyi
+
+
+### Rigat
+
+
+### Meg
+
+
+### Whitlee
+
+
+### Katie
+
+
+### Shelley
+
+
+### Pat
+
+
+### Johnathan
