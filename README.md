@@ -61,7 +61,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Anna Kendrick typing](https://media.giphy.com/media/7jMVtv69xwW0E/giphy.gif)
 
 ### Katie
-
+![cat asking did it work](https://media.giphy.com/media/Pla6TIXl1TmCJpLRsp/giphy.gif)
 
 ### Shelley
 ![confused man](https://media.giphy.com/media/4JVTF9zR9BicshFAb7/giphy-downsized.gif)
