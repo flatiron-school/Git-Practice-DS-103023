@@ -43,7 +43,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![spooky szn](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdG40NjNpZWRhd3dhZGZlcWhoOHU2OWI1bTh0c3ZwaHNsbHEya2FlMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QuxqWk7m9ffxyfoa0a/giphy.gif)
 
 ### Jay
-
+![Bored Work From Home GIF](https://media.giphy.com/media/1YLooL0I325PjVYM4u/giphy.gif)
 
 ### Victor
 
