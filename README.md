@@ -1,3 +1,5 @@
+
+i
 # Git GIF-STRAVAGANZA 
 ## For NTL-DS-103023
 
@@ -24,13 +26,13 @@ I will either accept your pull request, or send you feedback on what you need to
 ![keyboard cat gif from giphy](https://media.giphy.com/media/Hcw7rjsIsHcmk/giphy-downsized.gif)
 
 ### Daniel Demo
-![panda smashes computer](https://media.giphy.com/media/EtB1yylKGGAUg/giphy.gif)
+
 
 ### Jacob
-
+![dancing myers](https://media.giphy.com/media/Ke7jYOOGNjqRZ8Xywg/giphy.gif)
 
 ### Nathan
-![Steve Brule Shocked and Confused](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNGUyMjd1dzZhcmQ3ODJ1dHVtdGNieTU0NXhobGV0MHJwbjNqNjJnZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2XskdWuNUyqElkKe4bm/giphy.gif)
+
 
 ### JD
 
@@ -40,7 +42,6 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Nate
 
-![spooky szn](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdG40NjNpZWRhd3dhZGZlcWhoOHU2OWI1bTh0c3ZwaHNsbHEya2FlMCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/QuxqWk7m9ffxyfoa0a/giphy.gif)
 
 ### Jay
 ![Bored Work From Home GIF](https://media.giphy.com/media/1YLooL0I325PjVYM4u/giphy.gif)
@@ -52,23 +53,22 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Grumpy Cat](https://media.giphy.com/media/8CFKqeK9vks3C/giphy.gif)
 
 ### Rigat
-![Christmas is coming](https://media.giphy.com/media/mATqoqwcLzqNKkLcOR/giphy.gif)
+
 
 ### Meg
 ![pumpkin head gif from giphy](https://media.giphy.com/media/IRZE8JX2BQikM/giphy.gif)
 
 ### Whitlee
-![Anna Kendrick typing](https://media.giphy.com/media/7jMVtv69xwW0E/giphy.gif)
+
 
 ### Katie
 ![cat asking did it work](https://media.giphy.com/media/Pla6TIXl1TmCJpLRsp/giphy.gif)
 
 ### Shelley
-![confused man](https://media.giphy.com/media/4JVTF9zR9BicshFAb7/giphy-downsized.gif)
+
 
 ### Pat
-![cat jam gif from gyphy](https://media.giphy.com/media/GeimqsH0TLDt4tScGw/giphy-downsized.gif)
+
 
 ### Johnathan
-
 
