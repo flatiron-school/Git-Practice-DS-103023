@@ -33,7 +33,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Steve Brule Shocked and Confused](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExNGUyMjd1dzZhcmQ3ODJ1dHVtdGNieTU0NXhobGV0MHJwbjNqNjJnZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2XskdWuNUyqElkKe4bm/giphy.gif)
 
 ### JD
-
+![mitch buffering](https://media.giphy.com/media/5PiSLx5ZHCLaxa5TEx/giphy-downsized.gif)
 
 ### Juvenson
 ![dancing](https://media.giphy.com/media/OmOzy7C2BeyXsqTtUI/giphy.gif)
